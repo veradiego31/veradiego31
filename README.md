@@ -7,9 +7,9 @@ Here are some ideas to get you started:
 
 -->
 
-- 🔭 I’m currently working on new Swift proyects
+- 🔭 I’m currently working on new Swift projects
 - 🌱 I’m currently learning Python
-- 👯 I’m looking to collaborate on any kind of proyects
+- 👯 I’m looking to collaborate on any projects
 - 📫 How to reach me: veradiego31 (Linkedin)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I have a left power 🫲
