@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on any projects
 - 📫 How to reach me: veradiego31 (Linkedin)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I have a left power 🫲
+- ⚡ Fun fact: I love coffee 
 
